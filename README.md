@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Nuthan.
+- 😁 I Code Sometimes.
+- 😜 I Love Making Discord Bots.
+- 💬 My Discord - #Nuthan#6130.
+- 🤖 You Can Make Bots With Me!.
